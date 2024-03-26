@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @xiaosurou798
-- 👀 I’m interested in mo？hahah
-- 🌱 I’m currently learning shabi ML
+- 👀 I’m interested in mo
+- 🌱 I’m currently learning kabuki
 - 💞️ I’m looking to collaborate on ..
 - 📫 How to reach me call me 
 
